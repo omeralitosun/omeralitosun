@@ -1,4 +1,4 @@
-### Hi there, i am Omer Ali👋 
+### Hi there, I am Omer Ali👋 
 
 
 <!--
